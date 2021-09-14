@@ -1,0 +1,2 @@
+# Registras
+Technikos gedimai/remontas
